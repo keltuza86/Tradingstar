@@ -1,0 +1,2 @@
+# Tradingstar
+Dios simpre
